@@ -1,1 +1,1 @@
-VEZDE XOCHU ETO
+Glavnoe izmenilsya
