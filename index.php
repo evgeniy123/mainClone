@@ -1,1 +1,1 @@
-Izmeneniya na vetke new v clone
+tut izmenil chto nujno
